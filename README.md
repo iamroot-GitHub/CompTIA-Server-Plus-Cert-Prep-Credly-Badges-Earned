@@ -1,1 +1,1 @@
-# Earned CompTIA Server+ Cert Prep Credly Badges
+CompTIA Server+ Cert Prep Credly Badges Earned
